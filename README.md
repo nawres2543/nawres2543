@@ -2,7 +2,7 @@
 - I’m interested in dev web,programming bla bla bla 
 - I’m currently learning IT 
 - I’m looking to collaborate on creating a project 
-- U can reach me throrugh my email:nawresnefzi35@gmail.com
+- U can reach me through my email:nawresnefzi35@gmail.com
 - Pronouns: she/her
 
 <!---
